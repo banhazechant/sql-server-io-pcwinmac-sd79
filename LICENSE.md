@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://banhazechant.github.io/sql-server-io-pcwinmac-sd79/ ) |
  |---------------------|----------------------:|
 
 
